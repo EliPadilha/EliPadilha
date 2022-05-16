@@ -1,0 +1,5 @@
+- 👋 Olá, eu sou Eli
+- 👀 estou enteressada em okegom
+- 🌱 estou aprendendo computação
+- 💞️ estou colaborando com minha escola
+- 📫  por favor não me julgue
